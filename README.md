@@ -1,0 +1,2 @@
+# premium-goldwork-emb-001-goldwork-embroidery-metal-thre
+If you've ever lost track of which metal thread you used for a celestial crown or miscounted your couching stitches on a goldwork angel, this Notion template is your new best friend.  Goldwork embroidery uses precious metal threads that are too expensive to waste. This tracker lets you log every spool, every couching technique, and every project de
